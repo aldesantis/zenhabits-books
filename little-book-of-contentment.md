@@ -137,5 +137,5 @@ quello di chi evita al via dell'appaggamento... quando in realtà potrebbe
 intraprenderla proprio ora. Non dopo, quando avranno raggiunto certi obiettivi o
 un certo livello di successo finanziario. Ora.
 
-**Azione**: chiedi se, in questo momento, sei appagato. Se non lo sei, quando
+**Azione**: chiediti se, in questo momento, sei appagato. Se non lo sei, quando
 vorrai esserlo? Cosa ti frena?
