@@ -23,9 +23,7 @@ A cosa serve questo libro allora?
 Serve per agire. Lo scopo di questo libro è che tu:
 
   1. Lo legga in un'ora. Non che lo metta da parte, ma che lo legga davvero.
-
   2. Metta il metodo in pratica. Subito.
-
   3. Faccia pratica per qualche minuto ogni giorno. In poco tempo dovresti
      ritrovarti con delle capacità che ti aiuteranno a essere più appagato,
      meno arrabbiato, meno stressato.
@@ -33,10 +31,8 @@ Serve per agire. Lo scopo di questo libro è che tu:
 Come ti sembra? Se va bene, facciamo un patto:
 
   1. Fai quelle tre cose.
-
   2. Prometti di chiudere tutto il resto sul tuo computer e concederti un'ora di
      concentrazione per leggere questo libro.
-
   3. Io prometto di farla breve, sfruttare al meglio il tuo tempo, e insegnarti
      delle cose veramente utili.
 
@@ -57,57 +53,45 @@ Diamo un'occhiata ad alcuni esempi:
      derivante dal cibo è temporaneo; una volta passato, sarai depresso perché
      hai mangiato così tanta spazzatura, il che ti renderà infelice, e ti farà
      cercare conforto nel cibo.
-
   2. **Dipendenza dal fumo, da droghe, da pasticche, da alcol**: stesse cause
      della dipendenza dal cibo, stesso ciclo.
-
   3. **Dipendenza da internet, dai videogame, dal porno**: vedi sopra.
-
   4. **Debiti e disordine**: compri cose come fonte esterna di felicità (vedi
      sopra), e hai paura di cosa potrebbe accadere se lasci andare queste cose.
      Questa è una mancanza di fiducia nella tua capacità di stare bene anche
      solo con te stesso.
-
   5. **Paura di incontrare altre persone**: hai paura di come gli altri
      potrebbero giudicarti perché non hai fiducia in te stesso, perché non sei
      felice di ciò che sei.
-
   6. **Paura di intraprendere la tua attività**: hai paura di fallire perché non
      hai fiducia in te stesso, perché non sei felice di ciò che sei.
-
   7. **Sconforto nei confronti del tuo corpo**: vuoi che il tuo corpo incarni un
      ideale, e ovviamente non lo fa. Non puoi accettare che il tuo corpo sia
      perfetto proprio così (anche se ovviamente migliorare la tua salute non può
      che essere una buona cosa), e che le persone ti ameranno per ciò che sei,
      indipendentemente da come appari.
-
   8. **Incapacità di creare nuove abitudini**: non pensi davvero di poter
      mantenere le abitudini che non sei riuscito a creare così tante volte,
      quindi non ci metti tutto il tuo impegno. Non ti fidi di te stesso, e pensi
      di non essere una persona affidabile, disciplinata o buona.
-
   9. **Gelosia, insicurezza riguardo il tuo ragazzo o la tua ragazza, mania di
      controllare la sua pagina Facebook per vedere con chi sta flirtando**: non
      credi davvero che la tua metà voglia stare con te, e credi che ti
      abbandonerà, perché pensi di non essere all'altezza.
-
   10. **Gelosia di ciò che gli altri fanno su Facebook/Instagram, paura di
       perderti qualcosa**: pensi che tutti gli altri si stiano divertendo più di
       te, perché non sei felice di ciò che stai facendo ora -- non va mai
       abbastanza bene; ma in fondo è perché pensi di non essere abbastanza
       interessante.
-
   11. **Procastinazione/distrazione da internet**: senti il bisogno di fare
       qualcosa di più facile, di più confortevole, piuttosto che continuare a
       fare qualcosa di difficile e sconfortevole; non vuoi lo sconfortevole
       perché è difficile e pensi che fallirai; non credi che riuscirai a fare
       qualcosa di difficile.
-
   12. **Ansia**: hai un risultato ideale che vorresti davvero vedere realizzato,
       e l'ansia viene dalla paura che questo risultato non divenga realtà. Ti
       aggrappi a questo risultato ideale perché pensi che non starai bene se
       avviene l'inaspettato; perché non ti fidi di te stesso.
-
   13. **Rabbia**: hai un risultato ideale che vorresti davvero vedere
       realizzato, e ti arrabbi quando qualcun altro ne impedisce la
       realizzazione. Ti aggrappi a questo risultato ideale perché pensi che non
@@ -120,11 +104,8 @@ ci sono delle idee chiave che sono ripetute in molti dei problemi.
 I problemi chiavi associati all'inappagamento:
 
   1. Una fantasia ideale a cui ci aggrappiamo.
-
   2. L'inappagamento di ciò che siamo.
-
   3. La mancanza di fiducia/sicurezza in noi stessi.
-
   4. La ricerca della felicità esterna.
 
 **Azione**: pensa a quali dei problemi sopra elencati (o altri) potresti avere.
