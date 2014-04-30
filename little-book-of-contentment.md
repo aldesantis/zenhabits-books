@@ -3,7 +3,7 @@
 ## Uncopyright
 
 Questo libro non è protetto da copyright. Non è richiesto alcun permesso per
-ristampare, copiare, ripubblicare, riusare, remixare (???), recensire, citare o
+ristampare, copiare, ripubblicare, riusare, remixare, recensire, citare o
 godere del testo di questo libro.
 
 ## Dedica
