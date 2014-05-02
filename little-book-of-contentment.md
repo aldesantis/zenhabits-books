@@ -304,3 +304,229 @@ questo momento. È un miracolo.
 **Azione**: pensa alle vlte che ti sei confrontato con gli altri e con ciò che
 facevano, in particolare di recente. Dove hai trovato l'immagine degli altri con
 cui ti confronti? Social media, app, notizie, blog, film o riviste?
+
+## Osserva i tuoi ideali ideali e le tue aspettative
+
+Le nostre vite sono una serie di fantasie -- ideali e aspettative -- ma,
+sfortunatamente, spesso non ne siamo consapevoli.
+
+E nonostante tutti abbiamo delle fantasie, e a volte possa essere una buona
+cosa, il problema si ha quando la vita non è all'altezza della fantasia.
+
+La realtà è meravigliosa, e quando la compariamo alla fantasia (che non è reale,
+ovviamente), non è all'altezza. Per quanto possa essere bella, in tutta la sua
+gloria, non sarà mai abbastanza se ci aspettiamo che assomigli a una qualche
+fantasia. Questa è la ragione principale per cui non siamo contenti di noi
+stessi. È la ragione per cui siamo scontenti degli altri e delle nostre vite.
+
+È anche la ragione per cui cerchiamo la felicità nelle costre esterne --
+fantastichiamo di quanto saranno belle, di come incredibili saranno le nostre
+vite una volta che avremo queste cose, di come felici saremo una volta che le
+avremo. Ma non è vero, e quando otteniamo queste cose (cibo, un fidanzato, nuovi
+vestiti etc.), non sono all'altezza e non ci rendono felici come avremmo
+sperato. E non impariamo: continuiamo a fantasticare, continuiamo a ripetere il
+ciclo.
+
+Alcuni esempi delle nostre fantasie:
+
+Vediamo qualcuno con un bel corpo e fantastichiamo di avere pettorali o braccia
+simili.
+
+Vogliamo un fidanzato/coniuge che ci renda felici, che ci lovi
+incondizionatamente, che sia romantico, che si occupi di ogni nostro bisogno.
+
+Fantastichiamo di creare nuove abitudini senza mai sbagliare, e avere
+disciplina.
+
+Fantastichiamo pensando che le persone saranno educate, non ci taglieranno mai
+la strada, non si arrabbieranno mai, laveranno i piatti e puliranno dopo di sé.
+
+Fantastichiamo di avere una mattinata perfetta e produttiva.
+
+Fantastichiamo pensando che le persone saranno sempre interessate alle nostre
+storie, vorranno sentire tutto ciò che abbiamo da dire, penseranno ai nostri
+bisogni prima di tutto il resto.
+
+Ovviamente, non sappiamo sempre che stiamo avendo queste fantasie. Ma quando
+siamo frustrati, delusi, irritati o arrabbiati con gli altri o con noi stessi, è
+un chiaro segno che una nostra fantasia non si è realizzata.
+
+Siamo scontenti di noi stessi perché non soddisfiamo le fantasie che abbiamo su
+di noi: che dovremmo avere corpi perfetti, il coniuge perfetto, il lavoro
+perfetto, essere bravi a fare tutto, non sbagliare mai, avere abitudini
+perfette, non procastinare mai, o avere il carisma di una stella del cinema.
+
+Siamo scontenti degli altri perché non soddisfano le fantasie che abbiamo su
+come gli altri dovrebbero comportarsi: dovrebbero essere infallibilmente gentili
+con noi, felici e non arrabbiati, occuparsi di noi e soddisfare i nostri
+biisogni, non essere mai maleducati o freddi o ignorarci, e pulire sempre dopo
+di sé ed essere puntuali.
+
+Siamo scontenti delle nostre vite perché le nostre fantasie su come le nostre
+vite dovrebbero essere non si realizzano: che il tempo sia perfetto, che abbiamo
+una casa bellissima e un ottimo lavoro, e che siamo sempre al centro della pace
+e della felicità e dell'eccitazione, e circondati da persone che ci amano, e che
+non perdiamo mai nessuno di importante, e che tutte le belle cose nelle nostre
+vite non cambino mai.
+
+L'appagamento sta nel lasciar andare queste fantasie, e realizzare che la vita è
+meravigliosa senza di esse. Le persone intorno a noi sono meravigliose senza le
+fantasie. Noi siamo meravigliosi senza le fantasie.
+
+Come lasciamo andare le fantasie? Prima di tutto facendo brillare su di esse la
+luce della consapevolezza. Guardiamoci fantasticare, realizziamo che sta
+accadendo, e realizziamo che non abbiamo bisogno delle fantasie. Siamo felici di
+lasciarle andare. Osserviamo la realità da vicino, e riconosciamo la meraviglia
+della vita, così com'è, senza le fantasie.
+
+È lì. Dobbiamo solo imparare a vederla.
+
+**Azione**: prendi nota, quando sei frustrato, deluso, arrabbiato, stressato,
+infelice, della fantasia che stai avendo in quel momento. Allenati a lasciarla
+andare.
+
+## Pubblicità e fantasie
+
+Una delle ragioni per cui le persone comprano così tanto, e sono così infelici
+delle loro vite, è la pubblicità. La pubblicità crea false necessità --
+improvvisamente abbiamo bisogno di un iPhone o di una nuova macchina o di un
+anello con diamante, solo perché un produttore l'ha messo nelle nostre teste.
+
+La pubblicità è altamente efficace -- possiamo non rendercene conto, ma lavora
+sul nostro subconscio in modo che vogliamo comprare. Pianta desideri nelle
+nostre menti, e crea una mentalità tale che, qualunque sia il nostro problema,
+comprare qualcosa diventi la soluzione. Crea la mentalità che comprare sia la
+norma, e non ci sia altra scelta.
+
+Ed è ovunque. Ogni angolo delle nostre vite è pieno di pubblicità al giorno
+d'oggi. È così invasiva che abbiamo preso ad accettarla come una cosa della
+vita, e non può che avere un effetto sulle nostre menti. Guarda la TV: la
+pubblicità ti urla addosso tutto il giorno. Leggi un giornale o una rivista,
+visita un sito web, ed è in ogni crepa. È nelle pagine di Facebook e Twitter,
+nella nostra email, sui manifesti, sugli autobus, negli eventi sportivi, negli
+spazi pubblici, sui vestiti delle persone, nelle maratone, sui dirigibili in
+cielo, nei podcast, su iTunes, prima di un film, subdolamente (o non così
+subdolamente) messa in prodotti dentro i film -- ovunque. Sui siti web viene
+vista come inevitabile, e un stio senza pubblicità non si è quasi mai visto
+(molto diverso dal web di quindici anni fa, quando le pubblicità erano rare).
+
+Possiamo sconfiggere le forze della pubblicità non cadendo nelle fantasie che
+cercano di creare. Non permettiamogli di creare nelle nostre teste delle false
+necessità, non permettiamogli di giocare sulle nostre paure.
+
+Per prima cosa, possiamo guardare meno televisione supportata dalle pubblicità,
+meno video supportati dalle pubblicità, visitare siti web che non siano
+ricoperti di pubblicità (o usare un ad-blocker per bloccarle), e smettere di
+leggere riviste piene di pubblicità.
+
+Ma ancora più importante è fare più attenzione ai messaggi che ci mandano, alle
+fantasie che cercano di creare, e alle paure su cui giocano. Guardando questo
+processo, possiamo diventare più coscienti e meno suscettibili alle loro
+tattiche.
+
+Possiamo anche guardare alle "necessità" che pensiamo di avere, e realizzare che
+la maggior parte di queste sono inventate. Le necessità inventate possono essere
+eliminate. Tutto ciò che serve è la volontà di lasciarle andare.
+
+**Azione**: esamina una delle tue necessità inventate, e chiediti perché sia una
+necessità così importante. Chiediti cosa accadrebbe se la abbandonassi. Quanto
+farebbe bene? Avresti più tempo libero e più spazio per concentrarti e creare, o
+meno stress e meno cose da controllare ogni giorno? Cosa accadrebbe di male -- o
+potrebbe accadere? E quanto è probabile che questo accada? E come potresti
+reagire?
+
+## Costruisci fiducia
+
+Quando falliamo ripetutamente nelle nostre abitudini, perdiamo fiducia in noi
+stessi, non crediamo nella nostra abilità di perseverare in qualcosa, e ci
+sentiamo colpevoli e a volte disgustati da noi stessi.
+
+Questo è un pessimo stato di cose per le nostre abitudini future. È anche una
+causa di scontentezza di noi stessi.
+
+Quando intraprendiamo una nuova abitudine, se non crediamo davvero nella nostra
+abilità di perseverare, è meno probabile che abbiamo successo. Dubiteremo di noi
+stessi quando le cose si faranno un po' più difficili. Quando vorremo smettere,
+parte della nostra mente dirà "Ah, sapevo che questo sarebbe accaduto. Questo
+non fa che confermare quello che pensavo di te, razza di perdente." E poi
+abbandoneremo, invece di perseverare e liberarci della voglia di lasciar
+perdere.
+
+Le ragioni per cui perdiamo fiducia sono radicate nel giudizio di sé e nelle
+credenze negative che abbiamo su noi stessi. Quando falliamo nel perseverare --
+il che, vi dirò senza dubbio, è inevitabile, anche per la persona più
+disciplinata -- lo usiamo come modo per giudicarci.
+
+Ci diciamo: "Ma che diavolo? Perché non hai continuato con quella roba? Che c'è
+di sbagliato in te? Dio, vorrei davvero che potessi fare meglio. Fai schifo nel
+perseverare."
+
+Per alcuni di noi, questa è la voce dei nostri genitori! O di uno dei nostri
+genitori. O magari di un fratello, o di un compagno di classe, o di un altro
+parente, o solo una voce collettiva che abbiamo messo insieme usando le persone
+che ci hanno criticato negli anni.
+
+Questa voce è critica (non nel senso positivo del termine) e fa in modo che ci
+giudichiamo e non ci piacciamo e non ci fidiamo di noi stessi. Tuttavia, la voce
+si sbaglia. È solo una voce nella nostra testa. Non dobbiamo crederle, anche se
+parla.
+
+Così falliamo con un'abitudine, e ci critichiamo. Lo assimiliamo, non come
+"questo è accaduto e devo sistemarlo", ma come "questo è segno che sono
+inaffidabile, non abbastanza buono". Questo diventa un dato importante che ci
+mostra quanto ci valorizziamo.
+
+E accade ancora. E ancora una volta. Ogni volta che accade, ci sentiamo peggio
+riguardo noi stessi, sentiamo di valere meno, e ciò rende più facile che
+falliamo la prossima volta. Questo schema può continuare per anni.
+
+### Come riguadagnare fiducia
+
+Ci sono delle capacità che dobbiamo apprendere:
+
+  1. **Realizzare che il fallimento non è un bon motivo per giudicarti.** Questo
+  è davvero importante, e senon dovessi imparare altro, perlomeno impara questo.
+  Invece di assimilare il fallimento come un indicatore che non siamo validi o
+  sufficienti, dobbiamo imparare che il fallimento è solo un evento esterno.
+  Ovvio, eravamo coinvolti nell'evento, ma è come lanciare una palla verso un
+  canestro -- se lo manchiamo, significa che siamo persone orribili? No,
+  significa solo che dobbiamo sistemare la traiettoria della palla. Forse più
+  vicino. Magari da sotto, se funziona meglio. Prendi una scala. Allarga il
+  canestro. Trova qualcuno che ti aiuti. Non ci sono regole in questo gioco --
+  possiamo trovare modi per avere successo. Il fallimento è semplicemente un
+  indicatore che qualcosa nel nostro metodo dev'essere cambiato.
+
+  2. **Perdonarti per i tuoi errori passati.** Prima che impari a fidarti di
+  nuovo di te stesso, devi ripercorrere tutti i tuoi errori passati e le cattive
+  sensazioni che ne hai. Prenditi qualche minuto ora per farlo. Sì, hai fallito.
+  Sì, va bene. Falliamo tutti. Non è una buona ragione per stare male con te
+  stesso. Lascia andare! Convinciti di essere buono, che gli errori non erano
+  dovuti a problemi tuoi, ma del metodo.
+
+  3. **Iniziare a fare promesse a te stesso e mantenerle.** Questa parte
+  richiede più tempo perché la fiducia non si riguadagna dalla sera alla
+  mattina. Fai delle piccole promesse a te stesso. Davvero, più piccole che
+  puoi. Per esempio, se lo yoga è una tua abitudine, di' a te stesso che devi
+  solo sederti sul tappetino. Non devi nemmeno fare cinque minuti. Quindi fai
+  tutto ciò che puoi per mantenere quella promessa. La stessa cosa vale per
+  azioni non abitudinarie -- inizia a scrivere, inserisci un vegetale nel tuo
+  pasto, chiudi il tuo computer per un minuto quando un timer si attiva (se vuoi
+  concentrati su qualcosa che non sia internet, per esempio). Piccole promesse
+  ma grandi sforzi per mantenerle. Col tempo, inizierai a imparare che sei degno
+  di fiducia.
+
+  4. **Imparare a superare i momenti difficili.** Ci saranno sempre momenti in
+  cui non avrai voglia di mantenere l'abitudine, in cui vorrai arrenderti, in
+  cui mancherai un giorno o due per ragioni diverse, e non avrai voglia di
+  incominciare. Per prima cosa, impara che questi sono cali di motivazione e che
+  ci vorrà un po' di sforzo extra per superarli. Secondo, riconosci i pensieri
+  negativi che potresti avere riguardo la tua abilità di attraversarli, o le
+  ragioni che potresti inventare per non farlo, e non ascoltare. Terzo, ripeti a
+  te stesso che tutto ciò che ti serve è un po' di motivazione extra -- chiedi
+  aiuto a un amico, vai su un forum per chiedere un po' di responsabilità e
+  incoraggiamento, datti una grossa ricompensa, annuncia una gara solo per
+  superare questo chiodo fisso.
+
+Quattro passi, nessuno troppo facile ma nessuno così difficile da non poter
+essere completato. Ce la farai. Puoi fidarti della tua capacità di creare nuove
+abitudini e perservare, e quando hai questa fiducia, niente può fermarti.
