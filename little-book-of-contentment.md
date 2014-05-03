@@ -530,3 +530,213 @@ Ci sono delle capacità che dobbiamo apprendere:
 Quattro passi, nessuno troppo facile ma nessuno così difficile da non poter
 essere completato. Ce la farai. Puoi fidarti della tua capacità di creare nuove
 abitudini e perservare, e quando hai questa fiducia, niente può fermarti.
+
+## Amati
+
+Una delle più grandi manifestazioni della nostra paura di non essere all'altezza
+è la convinzione che i nostri corpi non siano abbastanza belli.
+
+Poche persone sono felici del proprio corpo.
+
+Lo dirò ancora per enfatizzare: quasi nessuno è contento del proprio corpo. Non
+tu, non io, non il nostro parente o collega meraviglioso, non quella ragazza
+carina che hai visto per strada oggi, nemmeno le celebrità bellissime come
+Angelina Jolie o Brad Pitt.
+
+Pensiamo di essere troppo grassi, o fuori forma. O pensiamo di essere troppo
+magri, o troppo bassi, o troppo grandi, o strani. O non siamo sovrappeso ma
+vogliamo comunque perdere cinque chili. O magari ci servono più muscoli o
+vogliamo essere più tonici. Magari abbiamo dei bei corpi e i nostri pettorali
+non sono abbastanza definiti. Magari la nostra pelle è troppo scura o troppo
+pallida. O i nostri occhi sono troppo vicini, o i nostri denti sono storti o le
+nostre mandibole sono male allineate. I nostri capelli fanno schifo. Le dita dei
+piedi sono brutte.
+
+Riesci a vedere cosa ci stiamo facendo? È una forma di odio verso se stessi, e
+ci rende depressi, insicuri, infelici di noi stessi -- e ci fa cercare fonti
+esterne di felicità.
+
+Se riconosciamo che ci stiamo giudicando troppo severamente sulla base di
+fantasie di come vorremmo essere e realizziamo che non è salutare né sano,
+possiamo iniziare a invertire il processo.
+
+Iniziamo col realizzare che abbiamo queste immagini di fantasia e queste
+aspettative irrealistiche. Sono assolutamente superflue. Buttiamole via.
+
+Ora guardiamo il confronto: perché dobbiamo compararci con gli altri o con le
+immagini che abbiamo degli altri (che, dopotutto, sono anch'esse non prive di
+errori)? Che effetto ha questo su di noi? È dannoso, non utile. Buttiamo via
+anche questo.
+
+E il giudizio? Dobbiamo proprio giudicarci? Dobbiamo dire "Questo è buono, ma
+non questo"? E se dicessimo solo "Mi piace tutto quanto, senza giudizio"? Non è
+così che dovremmo amare i nostri figli o coniugi o genitori -- totalmente,
+incondizionatamente, senza giudizio? Non possiamo amare i nostri corpi alla
+stessa maniera -- totalmente, incondizionatamente, senza giudizio?
+
+ALlora, se buttiamo via le fantasie, il confronto e i giudizi, i brutti
+sentimenti e le brutte immagini se ne vanno con loro.
+
+Quando ti accorgi di questi giudizi, realizza che non ti stanno aiutando, e che
+ti danneggiano creando queste cattive immagini di te, rendendoti insicuro.
+
+Questo non significa che non dovresti provare a fare qualcosa di salutare --
+mangiare cibo salutare, abituarti a fare attività fisica in modo salutare -- ma
+puoi farlo senza pensare che il tuo corpo faccia schifo. Puoi accettare il tuo
+corpo così com'è in questo momento e voler comunque fare qualcosa di salutare
+solo per la gioia di farlo, e per compassione verso te stesso.
+
+Per fare questo serve pratica, e non sto dicendo che ci riuscirai da un giorno
+all'altro. Io stesso sto ancora imparando. Ma di nuovo, inizia accorgendotene e
+inizia a lasciar andare. Inizia ad amare il tuo corpo, senza giudicarlo, senza
+riserva, senza desiderare che fosse qualcosa di diveso da ciò che è: bellissimo,
+e tuo.
+
+**Azione**: dai un'occhiata allo specchio. Fallo nudo se puoi, o almeno alza la
+maglietta e guarda il tuo torso, e quindi la tua faccia. Cosa vedi? Noti i tuoi
+giduizi? Noti ciò che stai giudicando -- ciò a cui ti stai comparando? Potresti
+non realizzare esattamente quale sia il tuo ideale di fantasia -- ma è basato su
+immagini nei media e negli altri che hai visto lungo la tua vita.
+
+Prova a guardare il tuo corpo (e la tua faccia) senza giudizio. Accettalo per
+ciò che è, senza pensare "Vorrei essere differente". Non è differente. È
+esattamente com'è, ed è la versione perfetta di ciò che dovrebbe essere. Non c'è
+una versione migliore.
+
+## Cercare la felicità in fonti esterne
+
+C'era un tempo, non molti anni fa, in cui ero dipendente dalle sigarette, dal
+cibo spazzatura, dalla televisione, dallo shopping e da altro ancora, il tutto
+essendo infelice e avendo problemi di relazione.
+
+Qual era la causa comune di tutti questi problemi? Ero infelice, così cercavo la
+felicità in cose esterne.
+
+Prendiamo il cibo come esempio, perché è un sintomo tanto comune. Ero infelice,
+ma sapevo che il cibo mi dava piacere -- mangiare dei biscotti o delle patatine
+fritte era piacevole, così mi sentivo bene per qualche minuto. Questo mi dava
+sempre una certa piacevole eccitazione. È un processo di razionalizzazione che
+occorre subconsciamente, senza che me ne accorgessi, il più delle volte.
+
+Ovviamente, dopo averle mangiate mi sentivo colpevole e non in forma, e stavo
+male con me stesso, e così ero ancora più infelice di prima. E così il ciclo si
+ripeteva: per sentirmi di nuovo bene, dovevo mangiare ancora.
+
+La maggior parte di noi lo prova -- cerchiamo la felicità nelle persone e nelle
+cose intorno a noi, invece di cercarla all'interno. E ovviamente il piacere che
+otteniamo da queste cose non è costante, solo temporaneo, e così la nostra
+felicità va su e giù a seconda della capacità di queste cose di soddisfarci o
+meno in questo preciso momento.
+
+Potresti non accorgertene, ma è probabilmente qualcosa che fai in almeno un'area
+della tua vita. Elencherò alcuni esempi di fonti esterne di felicità, ma non sto
+giudicando te o chiunque altro. Ovviamente l'ho fatto molte volte nella mia vita
+e ancora lo faccio, e penso sia qualcosa che ogni essere umano fa. Ma questo non
+significa che non possiamo cambiarlo, lentamente e gradualmente.
+
+Ecco alcuni modi in cui le persone cercano la felicità in persone o cose:
+
+  1. **Coniuge o fidanzato/fidanzata**. Un problema così comune. Abbiamo questo
+  ideale di come dovrebbe essere una relazione romantica, e ci aspettiamo che
+  l'altro ci renda felice in vari modi. Vogliamo che siano amorevoli, che
+  facciano cose romantiche o sexy, che mostrino quanto tengano a noi in mille
+  modi diversi, che mettano i nostri bisogni prima di quelli di chiunque altro
+  (inclusi i propri), che siano sempre gentili e considerevoli e rispettosi.
+  Questa è una fantasia, ovviamente, e nella realtà, quando ti trovi in una
+  relazione a lungo termine con qualcuno, la fantasia finirà sempre per essere
+  infranta. L'altra persona ha i suoi problemi da gestire, e si arrabbierà, o si
+  rattristerà, o a volte sarà maleducata, e non sarà sempre il partner romantico
+  e ideale. Cosa significa questo per la nostra felicità? Be', quando sono
+  amorevoli e magnifici, siamo così felici! Ma quando non lo sono, siamo
+  arrabbiati o depressi o delusi. Perché non ci amano più? E così sentiamo di
+  non meritare più il loro amore e abbiamo paura che ci rifiutino.
+
+  2. **Dipendenze**. Cibo, droghe, alcol, videogiochi, TV, qualcosa su internet,
+  sesso, porno. Ciascuna di queste cose ci dà piacere, almeno temporaneamente, e
+  dunque sono modi affidabili per trovare un momento di piacere. Potremmo non
+  essere in grado di controllare i nostri partner o figli o colleghi o
+  addirittura i nostri lavori, ma possiamo controllare queste cose -- se
+  vogliamo mangiare, solitamente possiamo. Se vogliamo farci una canna o una
+  birra, di solito possiamo. Ovviamente, queste cose danno solo un piacere
+  temporaneo, e così quando non ne stiamo godendo, le vogliamo. Non siamo
+  felici, perché la nostra felicità dipende dalla presenza di queste cose. E
+  così torniamo per averne ancora e ancora.
+
+  3. **Eccitazione e divertimento**. Questo può manifestarsi in molti modi: le
+  persone amano andare alle feste, ballare, bere con gli amici. O andare ad
+  appuntamenti con altre persone, o aggirarsi per i bar. Altre volte le persone
+  cercano l'eccitazione in sport avventurosi, o nei viaggi. Non c'è niente di
+  male nel praticare sport o viaggiare, o uscire con gli amici, ovviamente. Ma
+  ciò a cui devi prestare attenzione è: stai cercando la tua felicità in queste
+  cose? E quando non le hai, sei infelice? Perché la tua vita non sarà sempre
+  eccitante, e quando non lo è, la tua felicità crollerà.
+
+  4. **Lavoro**. Se sei dipendente dal lavoro, o dipendente dall'essere
+  impegnato, potresti stare cercando la tua felicità nel tuo lavoro. Di nuovo,
+  non c'è niente di male nel lavorare, né c'è qualcosa di male nel fare un
+  lavoro che ti piace o che ami. Io lo faccio, e ne traggo soddisfazione. Ma
+  dovresti prestare attenzione a cosa accade quando non stai lavorando -- c'è un
+  sentimento di astinenza, brami il ritorno al lavoro, è il posto dove cerchi la
+  tua felicità? Se è così, allora sarai felice solo quando stai lavorando.
+
+**Azione**: faremo in modo di allontanarci dalle fonti di felicità esterne nel
+prossimo capitolo, ma in questo momento ti prego di prenderti un minuto per
+pensare a quali siano le tue fonti di felicità esterne. Cosa ti dà piacere, ti
+rende felice, e cosa succede quando queste cose (o persone) non sono disponibili
+per darti quel piacere? Come ti senti?
+
+Osservati mentre cerchi queste forme di piacere. Osserva quando cerchi
+approvazione o felicità dalla tua altra metà. Osserva cosa succede quando non ne
+hai, e come la tua felicità possa alzarsi o abbassarsi a seconda di ciò che
+succede all'esterno.
+
+## Da dove viene la felicità
+
+È doveroso spendere un momento per pensare al luogo da cui viene la felicità.
+Nasce dall'avere qualcuno che ti ama, o dal mangiare un piatto fantastico, o
+dall'avere un bel corpo, o dal rilassarsi sulla spiaggia, o dal bere una buona
+tazza di caffè?
+
+In verità no. Queste cose sono tutti fenomeni che avvengono al di fuori di noi,
+e non causano la felicità. Possono essere correlate con la felicità -- succedono
+e siamo felici allo stesso tempo -- ma non è una relazione di causa-effetto. C'è
+un altro evento che avviene nello stesso momento.
+
+Questo evento è ciò che collega, nella nostra mente, un fattore esterno (una
+buona tazza di caffè) al nostro stato di felicità.
+
+Cos'è questo evento? È un processo. Diamogli un'occhiata più da vicino:
+
+  1. Beviamo una tazza di buon caffè (o leggiamo un bel libro, mangiamo delle
+  more deliziose, abbiamo del buon sesso etc.)
+
+  2. Notiamo il caffè e gli prestiamo attenzione. Se non prestiamo attenzione e
+  stiamo leggendo o siamo occupati mentre beviamo il caffè, non otteniamo
+  felicità dal caffè.
+
+  3. Apprezziamo la bontà del caffè che abbiamo notato. Non è solo il notare e
+  il prestare attenzione -- dobbiamo accettarlo per ciò che è, e apprezzare ciò
+  che di buono contiene.
+
+  4. Questa bontà che abbiamo notato ci fa essere felici della vita. Siamo ora
+  felici dell'esperienza di vivere, della vita in sé, perché quest'esperienza è
+  piena di bontà -- anche se è solo la bontà di una tazza di caffè.
+
+Dunque è tutto qui: notare e apprezzare la bontà in una tazza di caffè ci fa
+essere felici della vita. E più notiamo e apprezziamo riguardo le nostre vite (e
+noi stessi), più siamo felici.
+
+Questo significa dunque che la felicità consiste in cose esterne, coem la tazza
+di caffè o il sesso o l'amore di qualcun altro? No -- è nel processo che
+avviene. E questo processo può avvenire indipendentemente da ciò che avviene
+all'esterno. Può avvenire anche quando non ci sono stimoli esterni -- perché ci
+sono cose apprezzabili anche dentro di noi.
+
+Lasciate che enfatizzi: tutto il materiale di cui abbiamo bisogno per la
+felicità è dentro di noi. Le cose buono che possiamo apprezzare per essere
+felici sono sempre con noi, sempre lì. E anche gli strumenti per trasformare
+questi materiali in felicità sono dentro di noi. Dobbiamo solo svilupparli.
+
+**Azione**: ricorda questa verità: notare e apprezzare la bontà in ogni cosa ci
+rende felici della vita. E più notiamo e apprezziamo riguardo le nostre vite (e
+noi stessi), più siamo felici.
