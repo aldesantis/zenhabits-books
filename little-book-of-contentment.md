@@ -708,7 +708,7 @@ buona tazza di caffè) al nostro stato di felicità.
 Cos'è questo evento? È un processo. Diamogli un'occhiata più da vicino:
 
   1. Beviamo una tazza di buon caffè (o leggiamo un bel libro, mangiamo delle
-  more deliziose, abbiamo del buon sesso etc.)
+  more deliziose, facciamo del buon sesso etc.)
 
   2. Notiamo il caffè e gli prestiamo attenzione. Se non prestiamo attenzione e
   stiamo leggendo o siamo occupati mentre beviamo il caffè, non otteniamo
@@ -740,3 +740,327 @@ questi materiali in felicità sono dentro di noi. Dobbiamo solo svilupparli.
 **Azione**: ricorda questa verità: notare e apprezzare la bontà in ogni cosa ci
 rende felici della vita. E più notiamo e apprezziamo riguardo le nostre vite (e
 noi stessi), più siamo felici.
+
+## Trovare la felicità all'interno
+
+Se le fonti esterne di felicità non sono costanti o affidabili, dobbiamo cercare
+internamente. Ma cosa significa effettivamente?
+
+Significa trovare gioia pensando a quanto sei fantastico, nella tua costante
+crescita e nel processo di apprendimento, nel tuo apprezzamento della vita e del
+suo continuo mutamento, nel tuo apprezzamento sia della solitudine che della
+comunione. Queste sono tutte cose meravigliose, e sono tutte dentro di te, tutto
+il tempo.
+
+Quali sono alcune delle cose dentro di noi che possiamo apprezzare e che ci
+rendono felici? Alcuni esempi:
+
+  - Sei generoso?
+
+  - Ami? Puoi dare amore?
+
+  - Provi compassione?
+
+  - Sei bravo a fare qualcosa?
+
+  - Sei un buon ascoltatore?
+
+  - Empatizzi con il dolore di altri?
+
+  - Apprezzi la bellezza nella natura, negli altri?
+
+  - Hai buone idee?
+
+  - Sei determinato?
+
+  - Sei bravo negli sport?
+
+  - Sei creativo?
+
+E così via. Queste (e altre) sono tutte abilità interne che potresti avere e che
+sono apprezzabili, che ti mettono in pace con te stesso.
+
+Così il processo della felicità -- notare, apprezzare, essere felici di vivere
+-- può essere applicato a cose dentro di noi, indipendentemente da ciò che
+avviene al di fuori. Possiamo imparare a notare e apprezzare le cose buone (e
+anche quelle non perfette!) in noi stessi, e iniziare ad amarci.
+
+### Apprezzare tutto quello che ci circonda
+
+Tuttavia, apprezzare tutto quello che ci circonda è solo l'inizio. Quello che è
+dentro di noi è bellissimo, ma lo è anche quello che è in tutti gli altri, e
+nella vita tutto intorno a noi. Queste possono essere cose esterne, ma il loro
+apprezzamento (e la felicità che ne risulta) viene da dentro.
+
+Dunque l'abiltà fondamentale è imparare a notare, accettare e apprezzare tutto
+quello che è intorno a noi, e tutti quelli che vediamo e con cui interagiamo.
+
+Guarda attentamente il cibo che mangi, e il caffè, l'acqua, il tè o il vino che
+bevi... cosa noti? C'è bontà da notare e che si possa apprezzare, che ti possa
+rendere felice di essere vivo?
+
+E la stanza intorno a te? Il libro o il blog che stai leggendo? La natura fuori?
+Ci sono cose lì che puoi notare e apprezzare?
+
+Spesso, quando non riusciamo a vedere il bello delle cose o delle persone
+intorno a noi (o di noi stessi), è perché non prestiamo attenzione. Se la
+persona accanto a te sembra maleducata o non interessante, non stai prestando
+abbastanza attenzione ai dettagli: sono anche divertenti, talentuosi, o timidi
+ma con dei segreti nascosti? Sono sofferenti e hanno bisogno di compassione?
+Guarda più da vicino, e vedi cosa puoi trovare.
+
+Una volta che inizi a prestare attenzione e a guardare, scoprirai cose
+meravigliose. Tutto intorno a noi ci sono esempi di bellezza, creatività,
+ispirazione, trionfo, dolore, gioia, vita.
+
+E una volta che sarai diventato bravo, potrai iniziare ad apprezzare le cose non
+perfette. Giudichiamo i difetti degli altri, e i nostri difetti, come cattivi...
+ma se fossero solo una parte dell'essere umano? Non sono forse la rabbia e la
+maleducazione parte della nostra bellezza come umani?
+
+Ho imparato ad apprezzare i "difetti" dei miei figli, per esempio, come
+meravigliosi, come parte della loro firma. La mia piccola figlia è rumorosa e
+forte, mentre il mio figlio più giovane è (più) silenzioso ma pieno di movimento
+e avventura. Sono differenti, e queste differenza sono parte di ciò che li rende
+ciascuno speciale, a suo modo. Se non avessimo questi "difetti", non saremmo
+speciali.
+
+E questo è anche vero, ovviamente, per noi stessi. Abbiamo tutti dei difetti, e
+dovremmo celebrarli. Notarli, sì, ma apprezzarli, e usarli come ragioni di
+essere felici della vita.
+
+Una volta che siamo in grado di farlo, possiamo vedere la meraviglia in ogni
+piccola cosa intorno a noi e dentro di noi. E poi possiamo realizzare che la
+vita è una vera gioia, in ogni momento, se semplicemente prestiamo attenzione e
+la apprezziamo.
+
+**Azione**: prenditi un minuto per pensare alle cose che ti hanno infastidito,
+deluso, arrabbiato o frustrato recentemente. Come puoi trovare la bellezza in
+queste cose?
+
+## Le nostre reazioni alle azioni degli altri
+
+La frustrazione causata dagli altri può rovinare la nostra giornata --
+dall'arrabbiarsi con altri guidatori quando ci tagliano la strada, all'essere
+frustrato da un figlio o un coniuge, all'essere irritato con i colleghi,
+all'essere offeso da un estraneo o un cameriere o un assistente di volo
+maleducato.
+
+La frustrazione, la rabbia, l'irritazione e l'essere offesi non aiutano. Ci
+portano ad agire in una maniera che è distruttiva delle nostre relazioni con gli
+altri, in una maniera che non è compassionevole, calma, comprensiva. Portano gli
+altri a non fidarci di noi, rendono gli altri arrabbiati, fanno sì che non
+piacciamo agli altri. E ancora peggio, ci fanno stare male, che peggiora la
+nostra giornata.
+
+Se questi sentimenti non sono utili, cosa dovremmo fare? Non possiamo premere un
+interruttore e spegnerli, né possiamo sopprimerli (possiamo provare, ma non
+funzionerà).
+
+Inizia con la consapevolezza -- per cambiare le nostre reazioni, dobbiamo prima
+essere consapevoli di quando avvengono. Non puoi cambiarle se vai in automatico.
+
+Una volta che lo noti, la chiave è non agire -- va bene avere il sentimento, ma
+l'azione è ciò che solitamente è distruttivo. Agire per la rabbia significa fare
+qualcosa di non gentile e non utile.
+
+Dunque datti un po' di spazio. Vai via, calmati, respira. Lo spazio è dove puoi
+guardare l'emozione salire, raggiungere il proprio picco, dissolversi. Allora
+puoi pensare alla questione tranquillamente e agire nella maniera appropriata.
+Questo è quello che vogliamo davvero: una risposta appropriata.
+
+Qual è una risposta appropriata? Se metti via la rabbia, il sentirsi offesi,
+puoi rispondere in una maniera che ha senso in quella situazione. Per esempio:
+
+  - Se qualcuno ti taglia la strada, rallenta e dagli un po' di spazio. Giragli
+  intorno se vuoi, quando è sicuro. Non fare nulla di aggressivo e non andare su
+  di giri.
+
+  - Se tuo figlio si comporta male, invece di urlare, puoi cercare di capire
+  perché, e parlargli in maniera compassionevole, ed essere un modello di buon
+  comportamento.
+
+  - Se un collega ti irrita, puoi parlargli tranquillamente, in maniera
+  collaborativa, invece di affrontarlo.
+
+### Stiamo tutti imparando
+
+Questo è uno slogan che uso per aiutarmi a mettere le cose in prospettiva:
+"Stiamo tutti imparando". Puoi dirtelo ogni volta che qualcuno fa qualcosa che
+non ti piace.
+
+Cosa significa? Se qualcuno è maleducato, significa solo che ha molto da
+imparare sull'essere rispettoso e gestire la propria rabbia. Se il mio collega
+sbaglia, deve imparare delle cose sul lavoro. Se mia figlia combina un guaio o
+si comporta male, anche lei deve imparare molto della vita.
+
+E va bene. Abbiamo tutti delle cose da imparare. Siamo tutti in un processo di
+apprendimento costante. Siamo a stadi differenti con capacità differenti, ma
+nessuno di noi ha imparato tutto. E se lo realizziamo, possiamo essere pazienti
+con questo compagno apprendista, che dopotutto non può sapere tutto ed essere
+perfetto, giusto?
+
+Possiamo usare questo anche con noi stessi -- quando sbagliamo qualcosa o
+reagiamo male, possiamo perdonarci dicendo "Stiamo tutti imparando". Siamo
+imperfetti come ogni altro.
+
+Quando qualcuno fa qualcosa in modo imperfetto, maleducato, sconsiderato,
+inappropriato -- ditti semplicemente "Stiamo tutti imparando". E sorridi.
+
+### L'altra persona non è il problema
+
+Questa è più un'abilità da ninja, quindi non preoccuparti se non la incorpori
+subito.
+
+Ecco la cosa su cui riflettere: l'altra persona non è mai il problema.
+
+Cosa significa? Se qualcuno si comporta maleducatamente e ti arrabbi, il
+problema non è l'azione dell'altra persona... è la tua reazione. O più
+accuratamente, non è neanche la tua reazione, ma l'azione basata su quella
+reazione.
+
+Questo punto di vista sostiene che le azioni degli altri siano solo uno stimolo
+esterno, proprio come una foglia che cade, o una roccia che cade davanti a noi
+su una strada di montagna. Quando una roccia cade davanti a noi, non ci
+arrabbiamo con la roccia. Le giriamo intorno. Quando una foglia cade, non
+pensiamo che sia maleducata. Ci limitiamo a guardarla, e pensiamo che sia un
+processo naturale.
+
+Le azioni degli altri non sono per niente diverse. Rifletti su questa storia,
+dalla tradizione Zen:
+
+Un uomo sta remando una barca e vede un'altra persona remare verso di lui. La
+barca sbatte contro la sua, e inizia a urlare contro l'altro, arrabbiato perché
+ha sbattuto contro la sua barca.
+
+Ora leggi questa versione alternativa:
+
+Lo stesso uomo sta remando una barca e vede una barca vuota venire verso di lui.
+La barca sbatte contro la sua, ma lui si limita a girarci intorno.
+
+Nella prima versione, si arrabbia. Nella seconda, reagisce appropriatamente.
+
+Ecco il fatto: la barca è sempre vuota. Anche quando c'è un'altra persona a
+causare lo stimolo, quella persona non sta cercando di farci niente. Sta
+pensando alle proprie faccende, motivata da qualunque cosa stia attraversando, e
+dunque non dovremmo prenderla così sul personale.
+
+Quando prendiamo le cose sul personale, ci arrabbiamo. Quando vediamo l'evento
+esterno come una barca vuota, reagiamo in maniera appropriata.
+
+E così, l'altra persona non è il problema. Siamo noi che prendiamo le cose sul
+personale. Ci vuole tempo per assimilarlo in maniera istintiva piuttosto che
+come un semplice concetto, ma fa una grande differenza.
+
+**Azione**: scrivi tre frasi da dirti ogni volta che hai una cattiva reazione
+alle azioni degli altri: "Dai spazio alla tua reazione. Stiamo tutti imparando.
+L'altra persona non è il problema". Tieni queste frasi dove puoi vederle la
+prossima volta che reagisci contro qualcuo, e inizia recitandole (in silenzio) a
+te stesso quando noti la tua reazione alle loro azioni.
+
+## Non legare il tuo valore alle azioni degli altri
+
+Migliorare la propria reazione alle azioni degli altri, ma uno dei problemi più
+difficili è permettere alle azioni degli altri di influenzare il modo in cui ci
+giudichiamo.
+
+Un buon esempio: il tuo fidanzato ti lascia, così ti chiedi cosa ci sia di
+sbagliato in te. Perché non ti ama? Ti sei aperta a lui, hai condiviso le tue
+emozioni più intime, gli hai dato tutto il tuo amore... e lui ti ha rifiutato.
+Questo significa che non ti ha trovato valida, giusto?
+
+Veramente, no: le sue azioni non hanno davvero nulla a che vedere con te.
+
+Lascia che lo enfatizzi perché è davvero importante: le azioni degli altri hanno
+davvero poco a che fare con te.
+
+Se il tuo fidanzato ti rifiuta, o il tuo capo si arrabbia con te, o il tuo amico
+oggi è un po' distante, ha molto poco a che fare con te (e il tuo valore come
+persona) e tutto a che fare con ciò che sta succedendo a loro. Potrebbero stare
+avendo una brutta giornata, una brutta settimana, o essere persi in qualche
+storia nella propria testa, avere paura dei legami o essere stati rifiutati
+anche loro, avere paura di fallire nella relazione, e così via.
+
+Ci sono un milione di possibili ragioni per cui qualcuno potrebbe fare qualcosa,
+e non sono un giudizio di te. Sono più una dichiarazione di ciò che accade
+all'altra persona.
+
+Vediamo qualche esempio:
+
+  - **Il tuo amico non è attento come vorresti**. Significa che non gli
+  interessa di te, o che non vuole che tu sia felice? No. È possibile che sia
+  solo stanco, o troppo impegnato in ciò che è successo oggi per essere attento.
+  Magari è infastidito da qualcosa che hai fatto, ma si tratta più di come
+  gestisce le tue azioni che di te come persona. Magari puoi aiutarlo a gestire
+  il problema, o aiutare il suo dolore in qualche modo.
+
+  - **Il tuo collega è irritato con te ed è maleducato**. Significa che non è
+  una buona persona? No, significa che quella persona ha un carattere impulsivo
+  e non è brava a rapportarsi con gli altri, oppure sta avendo una brutta
+  giornata. Invece di prenderla sul personale, vedi se puoi dargli spazio per
+  calmarsi, o aiutarlo a gestire i suoi problemi.
+
+  - **Qualcuno non è eccitato come avresti sperato riguardo la tua idea**. Il
+  loro rifiuto della tua idea o proposta significa che non sei bravo? No. È
+  possibile che la tua idea non sia buona, ma questo non significa che tu non
+  valga nulla o che non abbia buone idee -- magari questa non è l'idea più
+  adatta per il momento. Ma è anche possibile che sia una buona idea ma che
+  questa persona non la apprezzi, o che i suoi interessi attuali non si
+  allineino con questa idea, o magari hanno altre priorità e non possono avere a
+  che fare con questa idea. Invece, ringraziali e passa a qualcuno che potrebbe
+  essere interessato.
+
+Questi sono solo alcuni esempi, ma puoi vedere quanto spesso prendiamo le azioni
+delle persone in maniera personale anche quando hanno poco a che fare con noi. E
+possiamo spesso interpretare le loro azioni come un giudizio di noi, e quindi
+sentirci male riguardo noi stessi quando in realtà non ha niente a che vedere
+con noi.
+
+Allora come dovremmo gestire le azioni delle altre persone? Diamo un'occhiata.
+
+### Come gestire le azioni degli altri
+
+Qualcuno ti rifiuta, si arrabbia con te, è indifferente nei tuoi confronti, è
+maleducato... cosa fai?
+
+Ci sono molte opzioni, ovviamente, ma ecco cosa suggerisco generalmente:
+
+  1. **Non prenderla sul personale**. Le loro azioni non hanno niente a che
+  vedere con te, quindi se noti che stai prendendo la cosa come un affronto
+  personale, o un giudizio del tuo lavore, sii consapevole e lascia andare.
+  Ripetiti che questo non ha niente a che vedere con te, e tutto a che vedere
+  con loro.
+
+  2. **Riafferma il tuo valore**. Se senti di dubitare del tuo valore per via
+  delle loro azioni, riconosci che il tuo valore non è determinato dalle loro
+  azioni o giudizi. È determinato da te. Dunque riafferma che credi di avere un
+  grande valore -- apprezza le cose di te che sono buone e che hanno valore.
+  Anche quando nessun altro ti apprezza, sii la persona che può vedere queste
+  cose buone e ne è grata. È tutto ciò di cui hai bisogno.
+
+  3. **Sii compassionevole**. Se l'altro è arrabbiato, maleducato, irritato,
+  stanco o spaventato, sta soffrendo. Potrebbero attaccarti o ritirarsi per via
+  di quel dolore. Vedi se puoi aiutarlo ad alleviare il dolore. Hai già
+  controllato e realizzato che sei apposto. Ora vai ad aiutare l'altra persona.
+  Se non vuole il tuo aiuto, va bene. Il tuo valore non è determinato dalla
+  volontà di qualcuno di farsi aiutare da te -- il solo fatto che hai provato ad
+  aiutare è una dichiarazione del tuo valore. Non puoi controllare se le persone
+  ricevono il tuo aiuto o ne sono grate, ma puoi almeno provare.
+
+Questi tre passi, comunque, non ti aiutano solo con la stima che hai di te,
+aiutano anche la tua relazione con l'altra persona. Spesso reagiamo nei
+confronti degli altri come se ci avessero ferito personalmente, e l'altra
+persona non capisce perché e, a sua volta, prende la nostra reazione
+personalmente e si arrabbia o si addolora. Se invece non prendiamo le sye azioni
+personalmente e cerchiamo di aiutarla, è più probabile che sia grata piuttosto
+che arrabbiata o addolorata. E così diventiamo amici, colleghi, partner o
+genitori migliori se prendiamo le cose meno sul personale e siamo più
+compassionevoli.
+
+**Azione**: queste capacità, come tutte le capacità della vita, richiedono
+pratica. Prenditi un minuto per ripetere nella tua testa un incidente recente in
+cui sei stato ferito da qualcuno vicino a te, anche solo un po', e pensa a come
+l'hai interiorizzato e all'influenza che ha avuto sull'immagine di te. Ora
+ripeti l'incidente nella tua testa in un altro modo, immaginandoti mentre usi i
+tre passi qui sopra. Fai pratica prima ripetendo, e poi prova a mettere in
+pratica quando senti il processo avvenire in futuro.
